@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi, I'm Sonya <3 👋
 
 <!--
 **Sonya-Hack/Sonya-Hack** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
